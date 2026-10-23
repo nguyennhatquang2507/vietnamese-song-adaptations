@@ -10,5 +10,6 @@ Bộ sưu tập gồm các bản chuyển lời tiếng Việt từ những ca k
 | --- | --- | --- |
 | 平凡之路 (*Píngfán Zhī Lù*) | Con Đường Bình Phàm | [View / Xem](ordinary-path/README.md) |
 | 当我娶过她 | Xem Như Tôi Đã Từng Cưới Được Cô Ấy | [View / Xem](dang-wo-qu-guo-ta/README.md) |
+| 相思遥 (*Xiāngsī Yáo*) | Tương Tư Xa | [View / Xem](xiang-si-yao/README.md) |
 
 [⬅ Back to Home](../README.md)
