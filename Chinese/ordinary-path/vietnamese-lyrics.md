@@ -42,7 +42,7 @@ Bước tiếp đi, cứ bước đi, cho dù người đã...
 
 ## [Chorus]
 
-Từng vượt qua núi, qua biển rộng mênh mông, cũng vượt qua bôn ba kiếp người.  
+Từng vượt qua núi, qua biển rộng mênh mông, cũng đi qua bôn ba kiếp người.  
 Đã từng giữ lấy nhiều thứ ở trong tay, khi chớp mắt tất cả vụt bay.  
 Đã từng lung lay, lầm lỡ, lạc lối quên mất luôn chốn về.  
 Chợt nhận ra, không gì hơn, một điều nhỏ bé, luôn bình an.
@@ -52,7 +52,7 @@ Chìm vào bóng tối giữa vũ trụ bao la, một mình ta chẳng thể vư
 Đã từng như ta, như người, như cỏ cây lá hoa cuối trời.  
 Từng bi quan, từng khát khao, nhưng giờ chỉ muốn, luôn bình an.
 
-Từng vượt qua núi, qua biển rộng mênh mông, cũng vượt qua bôn ba kiếp người.  
+Từng vượt qua núi, qua biển rộng mênh mông, cũng đi qua bôn ba kiếp người.  
 Đã từng cố gắng tìm kiếm ở muôn nơi, vẫn chẳng biết một câu trả lời.  
 Đã từng như ta, như người, như cỏ cây lá hoa cuối trời.  
 Dù ra sao, cứ bước đi, con đường phía trước, luôn phải đi.
